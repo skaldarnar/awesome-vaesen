@@ -1,0 +1,1 @@
+A black and white hand-drawn sketch of a [describe the item, e.g., an amulet or weapon], drawn in pencil or fine ink. Simple, clean lines with soft shading and minimal background. Style of a 19th-century naturalist or antiquarian illustration, like an old bookplate or museum catalog. Subtle worn texture, realistic but stylized design inspired by Nordic folklore and archaeology.

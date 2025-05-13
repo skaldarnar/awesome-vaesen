@@ -1,0 +1,1 @@
+[describe the Vaesen and scenery here]. The art style is highly detailed, textured, and painterly, inspired by old, hand-illustrated storybooks and folklore, with an earthy, magical, and slightly dark atmosphere.

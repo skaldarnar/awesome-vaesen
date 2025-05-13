@@ -1,0 +1,1 @@
+A vintage black and white character portrait sketch of a [describe character here], drawn in pencil or ink, 19th-century style, soft shading, fine linework, light background, slightly stylized but realistic proportions, antique book illustration aesthetic, clean and minimal background.
